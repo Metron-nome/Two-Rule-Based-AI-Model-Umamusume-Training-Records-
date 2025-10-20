@@ -1,0 +1,1 @@
+# Two-Rule-Based-AI-Model-Umamusume-Training-Records-
